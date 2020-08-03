@@ -1,2 +1,3 @@
 # hello-world
 Hello world juxtaposition...
+im a person. The world is false. They are not coming, they are already here. Kill your Idol.  Murder the Buddha.
